@@ -1,1 +1,1 @@
-I am Daad alsaif graduated eith an excellent grade in Computer science.
+I am Daad alsaif graduated with an excellent grade in Computer science.
